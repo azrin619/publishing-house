@@ -15,6 +15,13 @@ YOU WILL NEED TO LOGIN TO YOUR SCHOOL ACCT to validate your student status. Plus
 
 It will be indexed and pushed to http://papers.zyraz.college and indexed and some of my own sites such as blogger etc.
 
-You can attach your sanitised CERTIFICATE *(degree/masters/PhD) also in your profile and if you are in Tech, your links to Github etc
+You can attach your sanitised CERTIFICATE *(degree/masters/PhD) also in your profile and if you are in Tech, your links to Github etc.
+If you can do a short video of the thesis, will be great too.
+
+It is open to Diploma/Degree/Masters/PhD project papers and if you reference from them, please CREDIT THEM!
+
+Work is in Progress and funding for the project is via Google Ads/ etc
+
+
 
 
